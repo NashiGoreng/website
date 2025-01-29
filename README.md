@@ -1,2 +1,0 @@
-# website
-Tugas Sekolah
